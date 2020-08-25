@@ -11,6 +11,14 @@
 
 * [Why can’t Johnny jump tall buildings?](https://slate.com/human-interest/2008/11/why-parents-expect-too-much-from-their-kids.html)
 
+* [Tiny Tyrants](https://slate.com/human-interest/2008/04/how-to-really-change-your-kid-s-behavior.html)
+
+* [If You’re Good, I’ll Buy You a Toy](https://slate.com/human-interest/2010/03/why-bribing-your-child-doesn-t-work.html)
+
+* [The Messy Room Dilemma](https://slate.com/human-interest/2009/03/when-to-ignore-your-kid-s-behavior-and-when-to-change-it.html)
+
+---
+
 ## Books
 * [Kazdin, A.E. & Rotella, C. (2008). The Kazdin Method for parenting the defiant child: With no pills, no therapy, no contest of wills. Boston: Houghton Mifflin. (Also available in Spanish!)](https://www.amazon.com.br/dp/B003SNKBZK/ref=dp-kindle-redirect?_encoding=UTF8&btkr=1)
 
