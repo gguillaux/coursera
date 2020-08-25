@@ -12,6 +12,6 @@
 * [Why can’t Johnny jump tall buildings?](https://slate.com/human-interest/2008/11/why-parents-expect-too-much-from-their-kids.html)
 
 ## Books
-* Kazdin, A.E. & Rotella, C. (2008). The Kazdin Method for parenting the defiant child: With no pills, no therapy, no contest of wills. Boston: Houghton Mifflin. (Also available in Spanish!)
+* [Kazdin, A.E. & Rotella, C. (2008). The Kazdin Method for parenting the defiant child: With no pills, no therapy, no contest of wills. Boston: Houghton Mifflin. (Also available in Spanish!)](https://www.amazon.com.br/dp/B003SNKBZK/ref=dp-kindle-redirect?_encoding=UTF8&btkr=1)
 
-* Kazdin, A.E., & Rotella, C. (2013). The everyday parenting toolkit: The Kazdin Method for easy, step-by-step lasting change for you and your child. Boston: Houghton Mifflin Harcourt.
+* [Kazdin, A.E., & Rotella, C. (2013). The everyday parenting toolkit: The Kazdin Method for easy, step-by-step lasting change for you and your child. Boston: Houghton Mifflin Harcourt.](https://www.amazon.com.br/Everyday-Parenting-Toolkit-Step-Step-ebook/dp/B008LQ1VU8/ref=sr_1_1?__mk_pt_BR=%C3%85M%C3%85%C5%BD%C3%95%C3%91&dchild=1&keywords=The+everyday+parenting+toolkit&qid=1598316016&s=digital-text&sr=1-1)
