@@ -24,6 +24,26 @@
 *[Spare the Rod](https://slate.com/human-interest/2008/09/why-you-shouldn-t-hit-your-kids.html)
 
 ---
+## Techniques
+### Possible approaches to a behavior change program:
+1. Hand-holding
+    * Hand-holding on the way to begin the night-time prep duties is a nice setting event to get the behavior requested.
+2. Mentioning points
+    * Mentioning the ability to earn points in the prompt is a good setting event
+3. Using effusive praise
+    * Using effusive praise – specific, enthusiasm, affectionate touch – for completing the behaviors
+4. Immediately awarding a point
+    * Immediately awarding a point after backpack behavior done is a good way to lock in the good behavior
+5. Giving a choice
+    * Giving a choice in between backpack step and getting the clothes step
+6. Addjing a challenge
+    * Adding a challenge by noting that the getting the clothes step “might be too hard”
+7. Adjusting the program
+    * Adjusting the program to reward doing separate behaviors in succession
+8. Praising partial completion
+    * Praising partial completion. Praise for approximations of the behavior is important for shaping.  Praise for trying and for partial success are also good.
+    
+---
 
 ## Books
 * [Kazdin, A.E. & Rotella, C. (2008). The Kazdin Method for parenting the defiant child: With no pills, no therapy, no contest of wills. Boston: Houghton Mifflin. (Also available in Spanish!)](https://www.amazon.com.br/dp/B003SNKBZK/ref=dp-kindle-redirect?_encoding=UTF8&btkr=1)
