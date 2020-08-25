@@ -17,6 +17,12 @@
 
 * [The Messy Room Dilemma](https://slate.com/human-interest/2009/03/when-to-ignore-your-kid-s-behavior-and-when-to-change-it.html)
 
+* [No, You Shut Up!](https://slate.com/human-interest/2009/02/what-to-do-when-your-kid-provokes-you-into-an-inhuman-rage.html)
+
+*[Family Feuds](https://slate.com/human-interest/2008/06/how-to-make-timeouts-less-like-bar-fights.html)
+
+*[Spare the Rod](https://slate.com/human-interest/2008/09/why-you-shouldn-t-hit-your-kids.html)
+
 ---
 
 ## Books
