@@ -19,9 +19,12 @@
 
 * [No, You Shut Up!](https://slate.com/human-interest/2009/02/what-to-do-when-your-kid-provokes-you-into-an-inhuman-rage.html)
 
-*[Family Feuds](https://slate.com/human-interest/2008/06/how-to-make-timeouts-less-like-bar-fights.html)
+* [Family Feuds](https://slate.com/human-interest/2008/06/how-to-make-timeouts-less-like-bar-fights.html)
 
-*[Spare the Rod](https://slate.com/human-interest/2008/09/why-you-shouldn-t-hit-your-kids.html)
+* [Spare the Rod](https://slate.com/human-interest/2008/09/why-you-shouldn-t-hit-your-kids.html)
+
+* [Risk and the adolescent brain](http://www.slate.com/id/2243435/)
+* [Guide your teenager through the high-risk years](https://www.coursera.org/learn/everyday-parenting/supplement/GgQvj/optional-articles)
 
 ---
 ## Techniques
