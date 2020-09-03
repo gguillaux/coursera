@@ -45,7 +45,14 @@
     * Adjusting the program to reward doing separate behaviors in succession
 8. Praising partial completion
     * Praising partial completion. Praise for approximations of the behavior is important for shaping.  Praise for trying and for partial success are also good.
-    
+
+### Negotiation with adolescents
+* Select a good time where there is no tension and no decision has to be reached at this moment
+* Listen without jumping in
+* Be respectful of the teen (no scoffing or saying  “that’s a dumb suggestion”)
+* Focus on the present (avoid bringing up what teen did in the past)
+* Stay on the subject/topic (in this case, cell phone use)
+* Offer possible suggestions when there is disagreement
 ---
 
 ## Books
