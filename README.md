@@ -24,7 +24,14 @@
 * [Spare the Rod](https://slate.com/human-interest/2008/09/why-you-shouldn-t-hit-your-kids.html)
 
 * [Risk and the adolescent brain](http://www.slate.com/id/2243435/)
+
 * [Guide your teenager through the high-risk years](https://www.coursera.org/learn/everyday-parenting/supplement/GgQvj/optional-articles)
+
+* [Children and stress](http://www.slate.com/id/2262309/)
+
+* [Reading isn’t fundamental](http://www.slate.com/id/2206105/)
+
+* [I think I’m worried about my kid](http://www.slate.com/id/2218374/)
 
 ---
 ## Techniques
